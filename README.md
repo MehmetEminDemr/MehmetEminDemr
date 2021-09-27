@@ -3,7 +3,7 @@
 - 👀 I’m interested in KOTLIN and JAVA
 - 🌱 I’m currently learning KOTLIN and FIREBASE 
 
-![ezgif-2-022097a24f58](https://user-images.githubusercontent.com/82763556/132218358-f28ebadb-7c7d-4c5f-9bed-a3304c8d6b02.gif)
+![giphy (1)](https://user-images.githubusercontent.com/82763556/134854945-afaf30ce-f7f4-441e-9777-e2fcaa564a72.gif)
 
 
 <!---
